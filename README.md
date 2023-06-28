@@ -23,5 +23,5 @@ Md. Abdul Awal
 For inquires or suggestions please contact:
 ---
 k.mirazulmumenin@gmail.com
-md.abdul.awal.uq@gmail.com
+m.awal@uq.edu.au
 ---
